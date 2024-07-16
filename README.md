@@ -1,3 +1,2 @@
 # minecraft mod
-i love gay sex
- hitler
+i love gay sex and hitler
